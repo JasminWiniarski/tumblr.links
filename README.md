@@ -17,9 +17,9 @@ links to my different Tumblr. hashtags
 
 [IXD102](http://jasminwiniarski.tumblr.com/tagged/ixd102)
 
-  -[Poster](http://jasminwiniarski.tumblr.com/tagged/typespecimen)
-  -[Design History Presentation](http://jasminwiniarski.tumblr.com/tagged/presentation)
-  -[Design Essay Webpage](https://jasminwiniarski.github.io/designeressay/jessicahische.html) (not a tumblt link but i thought i'd add it here aswell)
+  - [Poster](http://jasminwiniarski.tumblr.com/tagged/typespecimen)
+  - [Design History Presentation](http://jasminwiniarski.tumblr.com/tagged/presentation)
+  - [Design Essay Webpage](https://jasminwiniarski.github.io/designeressay/jessicahische.html) (not a tumblt link but i thought i'd add it here aswell)
   
   
 [Side Projects](http://jasminwiniarski.tumblr.com/tagged/sideproject)
